@@ -57,7 +57,7 @@
 
 ---
 
-## 🏐 Extracurricular  
+## 🏐 Extracurriculars
 **Trent University Men’s Volleyball (Leadership Council Member)**  
 - Varsity Athlete (OUA / USports) + leadership role in athletics council.
 
